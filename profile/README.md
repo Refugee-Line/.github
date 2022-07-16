@@ -1,1 +1,1 @@
-Refugee Line is a Non-for Profit organization that support refugees through raising awareness about various refugee crises, organizing fundraisers for financial relief of refugees, and organizing donation drives to provide supplies and living essentials.
+Refugee Line is a 501(c)(3) organization that supports refugees through raising awareness about various refugee crises, organizing fundraisers for financial relief of refugees, and organizing donation drives to provide supplies and living essentials. We work both locally and internationally.
